@@ -1,4 +1,4 @@
-### Hi My name is Ernesto Pedro Maria || I’m from Angola 👋
+### Hi My name is Pedro Emanuel João Kondo || I’m from Angola 👋
 ### welcome to my profile
 
 - 🔭 I’m looking for software development Jr. job 
